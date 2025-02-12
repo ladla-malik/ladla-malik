@@ -10,3 +10,9 @@
 |--------------------------------|
 | [![Owner](https://i.ibb.co/TLkwkYQ/temp-image.jpg)](https://github.com/sadiyamin/Alexa/) | [![MALIK ZAIN](https://i.imghippo.com/files/yFpQ9125wYo.jpg)](https://github.com/ladla-malik/LADLA-MALIK-MD)
 <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
+
+<p style="color:purple"><b>Connect With Us:</b></p>
+
+### If there is an issue in this tool, report here [Ladla_Malik](https://api.whatsapp.com/send?phone=923435611415&text=𒁂𓄂❥𝙄𝙩𝙭•𝙇𝙖ڈ𝙡𝙖💥𝙈𝙖ل𝙞𝙠༽༼гՇ࿐/I_Picker/issues)
+
+<img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
