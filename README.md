@@ -11,9 +11,7 @@
 | [![Owner](https://i.ibb.co/TLkwkYQ/temp-image.jpg)](https://github.com/sadiyamin/Alexa/) | [![MALIK ZAIN](https://i.imghippo.com/files/yFpQ9125wYo.jpg)](https://github.com/ladla-malik/LADLA-MALIK-MD)
 <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
 
-<p style="color:purple"><b>Connect With Us:</b></p>
-
-<p style="color:purple"><b>Connect With Us:</b></p>
+<p style="color:purple"><b>If there is an issue is any tool Connect With Us On Whatsapp:</b></p>
  
 ``(Tap To Redirect)``
 
